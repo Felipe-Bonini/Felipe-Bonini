@@ -78,7 +78,7 @@ Enquanto isso, confira meus repositórios para acompanhar minha evolução!
 ## 📫 Contato
 
 - ✉️ Email: felipinhobonini@gmail.com
-- 🟦​ Linkedin: -----------------
+- 🟦​ Linkedin: www.linkedin.com/in/felipe-bonini-9a0a1b41b
 
 ---
 
